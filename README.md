@@ -67,7 +67,7 @@
 
 ## 📫 Connect With Me
 
-* 💼 LinkedIn: (Add your link)
+* 💼 LinkedIn: [(Profile)](https://www.linkedin.com/in/ayan-pal-a022b0232/)
 * 📧 Email: [ayanpal8276@gmail.com](mailto:ayanpal8276@gmail.com)
 
 ---
